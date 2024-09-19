@@ -14,13 +14,14 @@
 ![Izrezak10](https://github.com/user-attachments/assets/540b20b5-4c54-4431-9b49-bebec99b2d0a)
 
 
+## Screenshots Web stranice za ADMINA:
 
-
-
-
-
-
-
+![Izrezak11](https://github.com/user-attachments/assets/61bb6b55-b675-4967-ac47-c453d9511b65)
+![Izrezak12](https://github.com/user-attachments/assets/7fcbdc96-dd12-474d-ac96-e1c1b329c4e5)
+![Izrezak13](https://github.com/user-attachments/assets/5d085be4-5ef9-48c3-86db-53c5323695cb)
+![Izrezak14](https://github.com/user-attachments/assets/a929e197-e3d0-41f0-923a-bb45faca774f)
+![Izrezak15](https://github.com/user-attachments/assets/2ab9008e-d2a2-4630-8a1e-104408130995)
+![Izrezak16](https://github.com/user-attachments/assets/9355be2c-6fc0-4e2e-8d53-a71f1a754d78)
 
 
 
