@@ -23,7 +23,9 @@
 ![Izrezak15](https://github.com/user-attachments/assets/2ab9008e-d2a2-4630-8a1e-104408130995)
 ![Izrezak16](https://github.com/user-attachments/assets/9355be2c-6fc0-4e2e-8d53-a71f1a754d78)
 
+## Screenshotovi Mobilne aplikacije za KORISNIKE:
 
+![image](https://github.com/user-attachments/assets/6a26f4d5-8d93-4f84-98b8-0ee132a7baae)
 
 
 
