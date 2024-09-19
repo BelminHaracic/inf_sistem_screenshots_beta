@@ -26,7 +26,17 @@
 ## Screenshotovi Mobilne aplikacije za KORISNIKE:
 
 ![image](https://github.com/user-attachments/assets/6a26f4d5-8d93-4f84-98b8-0ee132a7baae)
-
+![IMG_0224](https://github.com/user-attachments/assets/61d05f5c-f1a2-4a87-83e0-41aa2133e27d)
+![IMG_0225](https://github.com/user-attachments/assets/23f8735c-9130-4171-a063-880caf9af893)
+![IMG_0226](https://github.com/user-attachments/assets/1cd63343-0b62-408e-9de2-9f16ad4ebcb1)
+![IMG_0227](https://github.com/user-attachments/assets/4705462f-c908-4a32-abe0-db30cfee6496)
+![IMG_0228](https://github.com/user-attachments/assets/fc2ed4b0-b7aa-43d3-8591-8308b66d95de)
+![IMG_0229](https://github.com/user-attachments/assets/c6b9202c-1ad2-41ac-87d4-0bc0d9d2f281)
+![IMG_0230](https://github.com/user-attachments/assets/b4ccb54c-9e8f-42d1-9fb5-10944257e182)
+![IMG_0231](https://github.com/user-attachments/assets/6f2a9794-de73-4fda-b3e6-6c05a2897d02)
+![IMG_0232](https://github.com/user-attachments/assets/b6146841-d35f-4b2d-98b2-091bcf8dfd54)
+![IMG_0233](https://github.com/user-attachments/assets/f232bc59-1caa-4fa4-bbf4-e749cfa01809)
+![IMG_0234](https://github.com/user-attachments/assets/dd8514ea-b094-4132-b67e-cbf8e38463ec)
 
 
 
